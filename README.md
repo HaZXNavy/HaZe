@@ -1,1 +1,1 @@
-# HaZeRoblox
+# HaZe
